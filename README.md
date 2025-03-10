@@ -4,3 +4,6 @@ heres something abt me hehs,,
 im not very talkative, i only talk to my friends ..!! 
 ⊹ - pls dont add me unless ik you .
       ![love-my-husband-i-love-my-husband](https://github.com/user-attachments/assets/c445979b-8852-47cc-b0ad-0665bf8d1c4f)
+
+ᶻ 𝗓 𐰁  check this site for more info abt me !! https://read-before-int.straw.page
+tyy for reading <33 coughss
