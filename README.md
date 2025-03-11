@@ -25,12 +25,12 @@
 
 ⊹ ࣪  [strawpage](https://read-before-int.straw.page) 
 
-
-![discord banner gif cutecore image mask](https://github.com/user-attachments/assets/92e0b0ec-439d-4882-8992-eafba329230d)
-
 might be found on
  ![blinkiesCafe-iD](https://github.com/user-attachments/assets/d0891f7a-7475-4450-9687-c7d34cc70e2d) ![blinkiesCafe-z0](https://github.com/user-attachments/assets/52a5be27-51bc-46c0-90fd-14d4fae3d05e) ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/506826cd-70fe-4b7d-ab35-81ef39a35e8c)
 
 
 
 tys for reading :00
+
+![discord banner gif cutecore image mask](https://github.com/user-attachments/assets/92e0b0ec-439d-4882-8992-eafba329230d)
+
