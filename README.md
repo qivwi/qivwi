@@ -10,6 +10,4 @@ im not very talkative, i only talk to my friends ..!!
 
 ![image](https://github.com/user-attachments/assets/ebf88040-1c21-4403-97d3-b2c6ad30eab7)
 
-![dandys-world-sprout](https://github.com/user-attachments/assets/296d5119-1647-48c6-9ed0-e357c01a34e1)
-
 tys for reading :00
