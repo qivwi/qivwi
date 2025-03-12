@@ -2,8 +2,10 @@
 
 #  welcome !! ⊹ -  ![blinkiesCafe-ik](https://github.com/user-attachments/assets/3683360d-a7be-4ac7-92c3-a017fb1ecffc)
 
+![image](https://github.com/user-attachments/assets/e9d9f8b5-4330-4a09-a43e-7b29615d5a05)
 
-# rentry !!  [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) ![image](https://github.com/user-attachments/assets/a0a7a83f-3556-4165-b459-6ad4fdc7e941)
+
+# rentry !!  [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) 
 
 # draw 4 me !! [strwpage](https://yzuwi.straw.page)
 
