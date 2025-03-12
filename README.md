@@ -27,6 +27,8 @@
 
 ⊹ please dont say ho, or any bad words to me unless i say it first as a joke. im really sensitive so i get hurt easily ,
 
+⊹  for sm1 - i ddnt copy this layout, i just tried to read ur github codes cs i really wanted the uhmm gifs thing, ty for understanding n im sorry again, @ghostlyvamps
+
 might be found on
  ![blinkiesCafe-iD](https://github.com/user-attachments/assets/d0891f7a-7475-4450-9687-c7d34cc70e2d) ![blinkiesCafe-z0](https://github.com/user-attachments/assets/52a5be27-51bc-46c0-90fd-14d4fae3d05e) ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/506826cd-70fe-4b7d-ab35-81ef39a35e8c)
 
