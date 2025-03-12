@@ -28,6 +28,9 @@
 
 ⟡ ݁₊ . DONT cuddle / kiss me if idk you. only for friends chat !!
 
+## ⟡ ݁₊ . ABOUT THE FORKED REPOSITORY, I CHECKED THE CODE TO SEE WHICH WEBSITE DID HE USE FOR THE GIFS, I CANT DELETE IT, THANK U FOR UNDERSTANDING !!
+
+
 ![blinkiesCafe-Hd](https://github.com/user-attachments/assets/7c3f7130-277b-4c38-a032-7878c2145fe0)
 ![blinkiesCafe-1C](https://github.com/user-attachments/assets/bce826df-0a38-4853-8ce8-842099260127) ![blinkiesCafe-V8](https://github.com/user-attachments/assets/38dedce4-456d-42c4-9bde-5654e58d8aef) ![blinkiesCafe-GM](https://github.com/user-attachments/assets/bf577cde-8173-4cd0-82e1-9b46f6629e08) ![blinkiesCafe-Tc](https://github.com/user-attachments/assets/b3787366-aa6f-4332-b2ca-e41c2e277a5f)
 ![blinkiesCafe-rV](https://github.com/user-attachments/assets/c28f8fc8-8b04-4c31-aed9-6299bed7b944) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/d4347d6f-6432-4063-9ad1-c3a288fa97da) ![blinkiesCafe-qg](https://github.com/user-attachments/assets/12b6f701-74ed-4d42-8d28-171d152fc9eb) ![blinkiesCafe-P2](https://github.com/user-attachments/assets/28776bc0-8604-4d37-8294-61fa6f1708ae)
