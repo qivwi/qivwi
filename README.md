@@ -1,40 +1,44 @@
 ##  welcome !! ⊹ - 
+
 ![](https://komarev.com/ghpvc/?username=litteryzu&color=641c41&style=for-the-badge&label=PROFILE+VIEWS) 
+
+
+## ⊹ ࣪  [strawpage](https://read-before-int.straw.page)  < get to know me better !
+
+## find me in these apps !!
+
+##  ![blinkiesCafe-iD](https://github.com/user-attachments/assets/d0891f7a-7475-4450-9687-c7d34cc70e2d)  ![blinkiesCafe-z0](https://github.com/user-attachments/assets/52a5be27-51bc-46c0-90fd-14d4fae3d05e)  ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/506826cd-70fe-4b7d-ab35-81ef39a35e8c)
 
 
 
 ![e7cefecc69db6bc4bfa657d771710ebf](https://github.com/user-attachments/assets/209c2172-6b7f-4a67-b300-d86832885c2a)
 
-![blinkiesCafe-1C](https://github.com/user-attachments/assets/2d892208-a509-4e7e-81e3-d3d4fb9ff86f)
-![blinkiesCafe-Hd](https://github.com/user-attachments/assets/20544aa9-e4b2-484e-a624-72597aea8251)
-![blinkiesCafe-Tc](https://github.com/user-attachments/assets/4d1fbf09-aeb2-4f55-a681-a4ab5e09e482)
-![blinkiesCafe-GM](https://github.com/user-attachments/assets/6c31f407-9a9b-470e-b8b0-89e3ed80de41)
-![blinkiesCafe-V8](https://github.com/user-attachments/assets/4d265041-195c-4061-898f-40829f4cb45e)
-![blinkiesCafe-rV](https://github.com/user-attachments/assets/3fe11a7f-55bb-4ff7-b4ac-0737be3ee985)
-![blinkiesCafe-2f](https://github.com/user-attachments/assets/d74eb911-03c7-49c8-9bfe-119cc79801cd)
-![blinkiesCafe-qg](https://github.com/user-attachments/assets/dcaf6253-9da5-40ee-9244-0d3b091f3ec5)
-![blinkiesCafe-P2](https://github.com/user-attachments/assets/9f4c1b64-be52-451b-91ca-e246869cccf3)
-![image](https://github.com/user-attachments/assets/1e5168d4-e1f5-4f57-abb1-0a50a56cca9d)
 
+## ° ᡣ𐭩 a bit of info abt m !! . ° . 
 
-![blinkiesCafe-yo](https://github.com/user-attachments/assets/ba2e417f-08f4-4b3e-818d-79cc24a3a4ef)
-![blinkiesCafe-Mk](https://github.com/user-attachments/assets/125d2983-c5f9-4e75-9ba1-b8caebb5688b)
+⟡ ݁₊  , sensitive !! please dont call me a loser or a ho, unless i say it 1st as a joke .
 
+⟡ ݁₊ . dont call me nicknames like " yuzii " or any nicknames, unless ik u !! 
 
-ᶻ 𝗓 𐰁  check this site for more info abt me !!
+⟡ ݁₊ . please dont add me in ponytown without asking, ESPECIALLY those party inviters.
 
-⊹ ࣪  [strawpage](https://read-before-int.straw.page) 
+⟡ ݁₊ . im nice chat trust !! 
 
-⊹ please dont say ho, or any bad words to me unless i say it first as a joke. im really sensitive so i get hurt easily ,
+⟡ ݁₊ . i have a dniuf in my name, if you wanna interact, talk with m abt something PLEASE whisper to me, instead of booping me.
 
-⊹  for sm1 - i ddnt copy this layout, i just tried to read ur github codes cs i really wanted the uhmm gifs thing, ty for understanding n im sorry again, @ghostlyvamps
+⟡ ݁₊ . DONT cuddle / kiss me if idk you. only for friends chat !!
 
-might be found on
- ![blinkiesCafe-iD](https://github.com/user-attachments/assets/d0891f7a-7475-4450-9687-c7d34cc70e2d) ![blinkiesCafe-z0](https://github.com/user-attachments/assets/52a5be27-51bc-46c0-90fd-14d4fae3d05e) ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/506826cd-70fe-4b7d-ab35-81ef39a35e8c)
+![blinkiesCafe-Hd](https://github.com/user-attachments/assets/7c3f7130-277b-4c38-a032-7878c2145fe0)
+![blinkiesCafe-1C](https://github.com/user-attachments/assets/bce826df-0a38-4853-8ce8-842099260127) ![blinkiesCafe-V8](https://github.com/user-attachments/assets/38dedce4-456d-42c4-9bde-5654e58d8aef) ![blinkiesCafe-GM](https://github.com/user-attachments/assets/bf577cde-8173-4cd0-82e1-9b46f6629e08) ![blinkiesCafe-Tc](https://github.com/user-attachments/assets/b3787366-aa6f-4332-b2ca-e41c2e277a5f)
+![blinkiesCafe-rV](https://github.com/user-attachments/assets/c28f8fc8-8b04-4c31-aed9-6299bed7b944) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/d4347d6f-6432-4063-9ad1-c3a288fa97da) ![blinkiesCafe-qg](https://github.com/user-attachments/assets/12b6f701-74ed-4d42-8d28-171d152fc9eb) ![blinkiesCafe-P2](https://github.com/user-attachments/assets/28776bc0-8604-4d37-8294-61fa6f1708ae)
 
 
 
-tys for reading :00
 
-![discord banner gif cutecore image mask](https://github.com/user-attachments/assets/92e0b0ec-439d-4882-8992-eafba329230d)
+
+
+
+
+
+
 
