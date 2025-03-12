@@ -2,7 +2,7 @@
 
 #  welcome !! ⊹ -  ![blinkiesCafe-ik](https://github.com/user-attachments/assets/3683360d-a7be-4ac7-92c3-a017fb1ecffc)
 
-![image](https://github.com/user-attachments/assets/51c3aeba-43f5-4b42-9114-7576d93d8c44)
+![image](https://github.com/user-attachments/assets/40884ac3-a206-4be9-9377-f305f3abcea2)
 
 
 # rentry !!  [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) 
