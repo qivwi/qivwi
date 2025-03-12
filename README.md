@@ -1,8 +1,7 @@
 ##  welcome !! ⊹ - 
 ![](https://komarev.com/ghpvc/?username=litteryzu&color=641c41&style=for-the-badge&label=PROFILE+VIEWS) 
 
-![blinkiesCafe-yo](https://github.com/user-attachments/assets/ba2e417f-08f4-4b3e-818d-79cc24a3a4ef)
-![blinkiesCafe-Mk](https://github.com/user-attachments/assets/125d2983-c5f9-4e75-9ba1-b8caebb5688b)
+
 
 ![e7cefecc69db6bc4bfa657d771710ebf](https://github.com/user-attachments/assets/209c2172-6b7f-4a67-b300-d86832885c2a)
 
@@ -18,7 +17,8 @@
 ![image](https://github.com/user-attachments/assets/1e5168d4-e1f5-4f57-abb1-0a50a56cca9d)
 
 
-
+![blinkiesCafe-yo](https://github.com/user-attachments/assets/ba2e417f-08f4-4b3e-818d-79cc24a3a4ef)
+![blinkiesCafe-Mk](https://github.com/user-attachments/assets/125d2983-c5f9-4e75-9ba1-b8caebb5688b)
 
 
 ᶻ 𝗓 𐰁  check this site for more info abt me !!
