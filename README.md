@@ -2,6 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=litteryzu&color=641c41&style=for-the-badge&label=PROFILE+VIEWS) 
 
+# ![blinkiesCafe-ik](https://github.com/user-attachments/assets/9acb0dd3-d010-4d53-839c-0ce9a70a4044)
+
+
 
 ## ⊹ ࣪  [strawpage](https://read-before-int.straw.page)  < get to know me better !
 
