@@ -2,6 +2,9 @@
 
  # ⊱  ۫ ׅ ✧ welcomeiesis  <-
 
+
+![blinkiesCafe-0R](https://github.com/user-attachments/assets/6c0d2704-14c1-4b6e-adaf-411b3c0fa8f0) ![blinkiesCafe-ik](https://github.com/user-attachments/assets/d8361f89-622b-4a05-8903-3fe0d5ac85da) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/3b57d6f4-c45a-4894-9e5a-e50d336eed42)
+
 ![image](https://github.com/user-attachments/assets/34f8bb10-b480-4b9f-bbc5-0d7de24c828c)
 
 ✧ me n sm1 real ! ![blinkiesCafe-6h](https://github.com/user-attachments/assets/9a1a3b39-2586-466f-9513-76485852dadb)
@@ -13,11 +16,14 @@
 
 ## [strawpage](https://yzuwi.straw.page)
 
-![68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f6a4c516f64516e383666655730773d3d2d313436373132393830372e3137653836653166353966366532](https://github.com/user-attachments/assets/e882f3be-7262-4881-9497-a7372254963c)
+
+
+![𓇼 ⋆ dolluvr ｡ ྀི+](https://github.com/user-attachments/assets/259538f7-b6de-49ef-bada-8b28e80c951e)
 
 
 
-![blinkiesCafe-0R](https://github.com/user-attachments/assets/6c0d2704-14c1-4b6e-adaf-411b3c0fa8f0) ![blinkiesCafe-ik](https://github.com/user-attachments/assets/d8361f89-622b-4a05-8903-3fe0d5ac85da) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/3b57d6f4-c45a-4894-9e5a-e50d336eed42)
+
+
 
 
 ## 𓍢˚꩜ about me !!
@@ -64,8 +70,9 @@ im found in some socials, like ![blinkiesCafe-wv](https://github.com/user-attach
 
 
 
-![68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f6a4c516f64516e383666655730773d3d2d313436373132393830372e3137653836653166353966366532](https://github.com/user-attachments/assets/e882f3be-7262-4881-9497-a7372254963c)
 
+
+![𓇼 ⋆ dolluvr ｡ ྀི+](https://github.com/user-attachments/assets/78f95d14-155c-4ea5-a57a-f0ea03ccb046)
 
 
 
