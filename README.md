@@ -10,6 +10,10 @@
 
 # rentry !! [ [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) ]
 
+![68747470733a2f2f692e706f7374696d672e63632f5a6e43354a3966622f3538737130792e706e67-fotor-2025031394918](https://github.com/user-attachments/assets/cefe330c-a9cb-4391-82bf-85a8c523285a)
+
+
+
 # draw 4 me !!  [ [strwpage](https://yzuwi.straw.page) ]
 
 ⟡ DNI,dni roleplay !! 
@@ -20,7 +24,7 @@
 
 
 
-• ────── ✾ ────── •
+
 
 
 
