@@ -8,9 +8,11 @@
 ![image](https://github.com/user-attachments/assets/40884ac3-a206-4be9-9377-f305f3abcea2)
 
 
-# rentry !!  [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) 
+# rentry !! [ [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) ]
 
-# draw 4 me !! [strwpage](https://yzuwi.straw.page)
+# draw 4 me !!  [ [strwpage](https://yzuwi.straw.page) ]
+
+⟡ DNI,dni roleplay !! 
 
 
 ### found on
