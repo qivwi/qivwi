@@ -14,10 +14,10 @@
 ![blinkiesCafe-HU](https://github.com/user-attachments/assets/12e1704e-3721-4c5f-a6aa-bc811e5492c0) ![blinkiesCafe-ez](https://github.com/user-attachments/assets/6a9aa742-2abe-46d2-82f1-9b30f683c533)
 
 
-# rentry  [ [pt info](https://rentry.co/yxhpbenr)   +  [about me](https://rentry.co/iwkuoa5h) ]
+# ⟡⟡ my rentry ! read b4 int > [PT+ABT RENTRY](https://rentry.co/rn76am6h)
 
 
-# draw 4 me  [ [strwpage](https://yzuwi.straw.page) ]
+# ⟡⟡ draw 4 me >  [strwpage](https://yzuwi.straw.page) 
 
 ## bit of info 
 ⟡ DNI,dni roleplay !! 
