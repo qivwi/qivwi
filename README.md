@@ -2,6 +2,9 @@
 
  # ⊱  ۫ ׅ ✧ welcomeiesis  <-
 
+**crazy how i turned frm strwpage to this whole introduction** !
+
+
 
 ![blinkiesCafe-0R](https://github.com/user-attachments/assets/6c0d2704-14c1-4b6e-adaf-411b3c0fa8f0) ![blinkiesCafe-ik](https://github.com/user-attachments/assets/d8361f89-622b-4a05-8903-3fe0d5ac85da) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/3b57d6f4-c45a-4894-9e5a-e50d336eed42)
 
