@@ -5,22 +5,34 @@
 ![blinkiesCafe-0R](https://github.com/user-attachments/assets/820bd350-85ef-4d89-ad4e-508afcebeaba)
 
 
-![image](https://github.com/user-attachments/assets/40884ac3-a206-4be9-9377-f305f3abcea2)
+![ginger bobette dw](https://github.com/user-attachments/assets/6d12480e-ced4-4067-858f-b071811bcab8)
 
 
-# rentry !! [ [ponytown info](https://rentry.co/yxhpbenr)  +  [about me](https://rentry.co/iwkuoa5h) ]
+
+![68747470733a2f2f692e706f7374696d672e63632f5a6e43354a3966622f3538737130792e706e67-fotor-2025031394918](https://github.com/user-attachments/assets/cefe330c-a9cb-4391-82bf-85a8c523285a)
+
+![blinkiesCafe-HU](https://github.com/user-attachments/assets/12e1704e-3721-4c5f-a6aa-bc811e5492c0) ![blinkiesCafe-ez](https://github.com/user-attachments/assets/6a9aa742-2abe-46d2-82f1-9b30f683c533)
+
+
+# rentry  [ [pt info](https://rentry.co/yxhpbenr)   +  [about me](https://rentry.co/iwkuoa5h) ]
+
+
+# draw 4 me  [ [strwpage](https://yzuwi.straw.page) ]
+
+## bit of info 
+⟡ DNI,dni roleplay !! 
+
+⟡ do not boop me !!
+
+⟡ i do art requests for supporter role, and robux !! msg strwpage 
+
+⟡ nice girl, feel free to come 2 m !!
+
+![blinkiesCafe-z0](https://github.com/user-attachments/assets/fa1629ea-3c75-4620-b682-eef899390b3e) ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/42352588-08f8-4340-852f-03b65a79d9c2) ![blinkiesCafe-wv](https://github.com/user-attachments/assets/6a286a4d-8873-4d04-9a03-fac62bbdb3dd)
 
 ![68747470733a2f2f692e706f7374696d672e63632f5a6e43354a3966622f3538737130792e706e67-fotor-2025031394918](https://github.com/user-attachments/assets/cefe330c-a9cb-4391-82bf-85a8c523285a)
 
 
-
-# draw 4 me !!  [ [strwpage](https://yzuwi.straw.page) ]
-
-⟡ DNI,dni roleplay !! 
-
-
-### found on
-![blinkiesCafe-iD](https://github.com/user-attachments/assets/d0891f7a-7475-4450-9687-c7d34cc70e2d)  ![blinkiesCafe-z0](https://github.com/user-attachments/assets/52a5be27-51bc-46c0-90fd-14d4fae3d05e)  ![blinkiesCafe-Sw](https://github.com/user-attachments/assets/506826cd-70fe-4b7d-ab35-81ef39a35e8c)
 
 
 
