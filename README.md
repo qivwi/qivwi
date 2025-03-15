@@ -13,7 +13,7 @@
 ✧ me n sm1 real ! ![blinkiesCafe-6h](https://github.com/user-attachments/assets/9a1a3b39-2586-466f-9513-76485852dadb)
 
 
-✧ has multiple husbands, 99% of them r platonic !! som1 n pt is my real 1 ^o^
+✧ has multiple husbands, 99% of them r platonic !! , **PUPZ MY WIFE TRUST**
 
 ✧ **PLEASE** draw 4 me!!
 
@@ -34,7 +34,7 @@
 
 ୨ৎ foul / yuz,/ **wie** i prefer wie fyinformation !! 
 
-୨ৎ trans ftm, i still prefer being a girl cs ykwwkwkwk 
+୨ৎ trans ftm , pronouns he / him !!
 
 ୨ৎ likes ; **catsieiseis** !! DW ofcofc, drawing, plushiesieis! 
 
@@ -48,13 +48,13 @@
 
 ୨ৎ ships dw ; glistenxgoob, glistenxrodger, flowerberry, moonberry, fossilberry, boxflower, conniexlooey, conniexgigi, n other more !! ( its 2 many so umm ererer )
 
-⋮  ゛I **LOVE** MY HUSBAND IN PONYTOWN!! ( other than the low quality astro ) 
+⋮  ゛I **LOVE** MY WIFE IN PONYTOWN!! ♡ 
 
 
 ## 𓍢˚꩜ PT info !! ( READ B4 INT )
 
 
-⟢ please do **NOT** cuddle, kss, boop unless platonic husbands, or my real husband !
+⟢ please do **NOT** cuddle, kss, boop unless platonic husbands, or my real wife !
 
 ⟢ i usually have a dniuf in my name, so pls w2i me if needed anything to ask!! + late repls
 
