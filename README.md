@@ -32,7 +32,7 @@
 ## 𓍢˚꩜ about me !!
 
 
-୨ৎ **foul** / yuz, i prefer foul, yuz is only 4 friends !!
+୨ৎ foul / yuz,/ **wie** i prefer wie fyinformation !! 
 
 ୨ৎ trans ftm, i still prefer being a girl cs ykwwkwkwk 
 
