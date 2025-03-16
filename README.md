@@ -8,7 +8,8 @@
 
 ![blinkiesCafe-0R](https://github.com/user-attachments/assets/6c0d2704-14c1-4b6e-adaf-411b3c0fa8f0) ![blinkiesCafe-ik](https://github.com/user-attachments/assets/d8361f89-622b-4a05-8903-3fe0d5ac85da) ![blinkiesCafe-2f](https://github.com/user-attachments/assets/3b57d6f4-c45a-4894-9e5a-e50d336eed42)
 
-![image](https://github.com/user-attachments/assets/34f8bb10-b480-4b9f-bbc5-0d7de24c828c)
+![image](https://github.com/user-attachments/assets/e0fb6bb8-8485-487b-84ec-5d5eacaa24e7)
+
 
 ✧ me n sm1 real ! ![blinkiesCafe-6h](https://github.com/user-attachments/assets/9a1a3b39-2586-466f-9513-76485852dadb)
 
@@ -21,8 +22,11 @@
 
 
 
-![𓇼 ⋆ dolluvr ｡ ྀི+](https://github.com/user-attachments/assets/259538f7-b6de-49ef-bada-8b28e80c951e)
 
+
+
+
+![4eaff47f1e796bd4d056bc045d14f854-removebg-preview](https://github.com/user-attachments/assets/2d27b36b-9741-434a-aecf-28902464f6d8)
 
 
 
@@ -75,7 +79,11 @@ im found in some socials, like ![blinkiesCafe-wv](https://github.com/user-attach
 
 
 
-![𓇼 ⋆ dolluvr ｡ ྀི+](https://github.com/user-attachments/assets/78f95d14-155c-4ea5-a57a-f0ea03ccb046)
+![4eaff47f1e796bd4d056bc045d14f854-removebg-preview](https://github.com/user-attachments/assets/7c9a5867-990e-4d28-9071-453f1fc298b6)
+
+
+
+
 
 
 
