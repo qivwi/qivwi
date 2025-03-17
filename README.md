@@ -44,7 +44,7 @@
 
 ୨ৎ likes ; **catsieiseis** !! DW ofcofc, drawing, plushiesieis! 
 
-୨ৎ dni ; small criticism, hatersisisi, not anything at all tbhs--
+୨ৎ dni ; basic dni criteria, hatersisisi, not anything at all tbhs--
 
 ୨ৎ i am **SENSITIVE** , so pls dont say negative stuffs like ho, loser or any other even if its a joke !! talk t me back like that if i say it first, or if i am in the mood LLL
 
