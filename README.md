@@ -50,7 +50,7 @@
 
 ୨ৎ pookiesis, aka my platonic hsbnds ; ryu, howler, pupz, n someone in pt !! ( the low quality astro vibrant with a dandy accesory ) HELPs- n fxclurvv !
 
-୨ৎ buddies/friends w/ ; akira, (ghostlyvamps) n nix (read-strawpage-before-int) !!
+୨ৎ buddies/friends w/ ; akira (ghostlyvamps) !
 
 ୨ৎ ships dw ; glistenxgoob, glistenxrodger, flowerberry, moonberry, fossilberry, boxflower, conniexlooey, conniexgigi, n other more !! ( its 2 many so umm ererer )
 
