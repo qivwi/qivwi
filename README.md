@@ -16,7 +16,7 @@
 ✧ me n sm1 real ! ![blinkiesCafe-6h](https://github.com/user-attachments/assets/9a1a3b39-2586-466f-9513-76485852dadb)
 
 
-✧ has multiple husbands, 99% of them r platonic !! , **PUPZ MY WIFE TRUST**
+✧ **PUPZ MY WIFE TRUST**
 
 ✧ **PLEASE** draw 4 me!!
 
@@ -48,9 +48,8 @@
 
 ୨ৎ i am **SENSITIVE** , so pls dont say negative stuffs like ho, loser or any other even if its a joke !! talk t me back like that if i say it first, or if i am in the mood LLL
 
-୨ৎ pookiesis, aka my platonic hsbnds ; ryu, howler, pupz, n someone in pt !! ( the low quality astro vibrant with a dandy accesory ) HELPs- n fxclurvv !
+୨ৎ pookies / friends !! ; ryu, howler, pupz, n someone in pt !! ( the low quality astro vibrant with a dandy accesory )  isa , nix / pup, someone in ponytown who wasmy ex before ☆ 
 
-୨ৎ buddies/friends w/ ; akira (ghostlyvamps) !
 
 ୨ৎ ships dw ; glistenxgoob, glistenxrodger, flowerberry, moonberry, fossilberry, boxflower, conniexlooey, conniexgigi, n other more !! ( its 2 many so umm ererer )
 
