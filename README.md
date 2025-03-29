@@ -48,7 +48,7 @@
 
 ୨ৎ i am **SENSITIVE** , so pls dont say negative stuffs like ho, loser or any other even if its a joke !! talk t me back like that if i say it first, or if i am in the mood LLL
 
-୨ৎ pookies / friends !! ; ryu, howler, pupz, n someone in pt !! ( the low quality astro vibrant with a dandy accesory )  isa , nix / pup, someone in ponytown  ☆ 
+୨ৎ pookies / friends !! ; ryu, howler, pupz, n someone in pt !! ( the low quality astro vibrant with a dandy accesory )  isa , howler ,  someone in ponytown  ☆ 
 
 
 ୨ৎ ships dw ; glistenxgoob, glistenxrodger, flowerberry, moonberry, fossilberry, boxflower, conniexlooey, conniexgigi, n other more !! ( its 2 many so umm ererer )
